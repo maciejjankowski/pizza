@@ -39,11 +39,11 @@ Directions (for mere mortals)
 4. Let the dough rise. Rise! Dough! 
 5. Beat it up and divide into 3 or 4 pieces and store in plastic bags.
 6. Let it sit in the fridge for at least a day.
-7. (when hungry) reheat the oven to ~200C / 400F (if you have pizza stone - use it)
+7. (when hungry) reheat the oven to the max (if you have pizza stone - use it) and make sure it is damn hot
 8. take the pie out of fridge to warm up a bit (it should feel soft and fluffy) - but don't knead!
 9. prepare your toppings (watch out for tomatoes, mushrooms, meats, etc - in excess they can make your pizza soggy)
 4. Spread some olive oil on the tray and dust it with semolina - this makes the crust dry and crispy but not hard.
-3. Bake at > 200 C (400 F) at lower rack, so the cheese won't burn, watch the cheese and crust at sides.
+3. Bake at middle rack, so the cheese won't burn, watch the cheese and crust at sides.
 
 Pro tips
 ------
