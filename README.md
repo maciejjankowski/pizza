@@ -3,7 +3,7 @@ Pizza recipe
 
 You read it right. Yup. Pizza - the round thingie.
 
-Dough: 3 thick or 4 thin crusts
+Dough: 4 -5 crusts
 -----
 
 Makes 3 servings (4 if you eat healthy)
