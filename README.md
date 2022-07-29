@@ -77,3 +77,9 @@ Tomato sauce recipe
 5. heat up the olive, add garlic, don't burn it. Then add tomatoes, bay leaves, seasoning.
 6. Herbs go in last.
 7. reduce until you get a thicker, creamy texture
+
+
+Read more detailed write up on napoletana at: 
+
+* [Jeff Varasano's NY Pizza Recipe](http://www.varasanos.com/PizzaRecipe.htm)
+
