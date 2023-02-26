@@ -10,12 +10,12 @@ Makes 3 servings (4 if you eat healthy)
 
 1. 1 kg wheat flour (and have some more handy! *crucial*)
 2. 1.5 - 2 glasses of water
-3. 2 eggs
-3. tiny chunk  of fresh or half packet dried yeast
+3. 1 egg (optional, frowned upon by many, but makes the pie more fault-tolerant)
+3. Pea-sized chunk of fresh or half a packet of dried yeast
 4. 2 tbsp sugar
 5. 3 flat tsp salt
 6. 4-5 tbsp olive oil
-7. 1 tbsp semolina (this is important)
+7. 1 tbsp semolina (this is a gamechange)
 
 Hardware
 ------------
